@@ -14,3 +14,4 @@ Utilizo esse espaço para minha organização e compartilhamento dos meu projeto
 ![](https://media.tenor.com/LivQlT-8ZEoAAAAM/shuumatsu-no-valkyrie-nikola-tesla.gif)
 ![](https://media.tenor.com/8LW9oFQqimsAAAAM/shuumatsu-no-valkyrie-nikola-tesla.gif)
 ![](https://media.tenor.com/DYgHdTDm3TkAAAAM/tesla-shuumatsu-no-valkyrie.gif)
+![](https://media1.tenor.com/m/yH7FUUf1RdYAAAAd/gambit-fortnite.gif)
